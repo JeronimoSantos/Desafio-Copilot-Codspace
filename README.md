@@ -5,7 +5,7 @@ No dia 13 de janeiro de 2030 um acontecimento aconteceu no mundo que chocou ate 
 
 ⛏  DOCUMENÇÃO
 
--{Folha de Sao Paulo}
+- {Folha de Sao Paulo}
 
 🎞 RESUMOS DOS FATOS
 
